@@ -6,4 +6,4 @@
 <br/>
 <br/>
   
-ᨳ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/carcar)  :  [新𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/)
+ᨳ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/carcar)  :  [新𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/) ଓ
