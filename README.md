@@ -1,3 +1,9 @@
 <div align="center">
-<img width="400" height="325" alt="39216" src="https://github.com/user-attachments/assets/fcddd5a9-37eb-44ad-8763-9c2d8dba21af" />
-
+<img src="https://komarev.com/ghpvc/?username=dmutt7&color=0054dc&label=dogs">
+<br/>
+<br/>
+<img width="270" height="200" alt="39224" src="https://github.com/user-attachments/assets/025e9140-bca5-4fc9-99d9-b97d6eb01816" />
+<br/>
+<br/>
+  
+ᨳ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/carcar)  :  [新𝙗𝙤𝙤𝙠](https://dmutt7.atabook.org/)
